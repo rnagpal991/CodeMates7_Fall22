@@ -24,6 +24,7 @@ no special equipment required!
 3. Simmer for 5 minutes on low heat.
 4. Add 1 tbs garlic powder, 1/2 tsp salt, 1/2 tsp black pepper, and 2 cups of parmesan cheese to the skillet and whisk until cheese has melted.
 5. Serve the sauce over cooked pasta and top with 2tbs of chopped parsley.
+6. Serve with extra parmesan cheese a gusto.
 
 
 ### Notes:
