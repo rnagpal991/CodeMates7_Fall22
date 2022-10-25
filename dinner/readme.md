@@ -6,7 +6,7 @@
 
 ## Ingredients:
 1 pound pasta
-1/2 cup butter (1 stick)
+1/2 cup butter (1 stick), or substitute coconut oil if desired
 1 cup heavy cream
 1 tbs garlic powder
 1/2 tsp salt
