@@ -10,13 +10,14 @@
 
 ## Ingredients:
 
-- ¾ cup rolled oats
-- ¼ teaspoon ground cinnamon
-- Pinch of sea salt
+- ¾ cup rolled or quick oats
+- 1½ cups water
+- ¼ teaspoon ground cinnamon (optional)
+- Pinch of sea salt (optional)
 - ¼ cup fresh berries (optional)
 - ½ ripe banana, sliced (optional)
 - 2 tablespoons chopped nuts, such as walnuts, pecans, or cashews (optional)
-- 2 tablespoons dried fruit, such as raisins, cranberries, chopped apples, chopped
+- 2 tablespoons dried fruit, such as raisins, cranberries, chopped apples, chopped (optional)
 - Apricots (optional)
 - Maple syrup (optional)
 
