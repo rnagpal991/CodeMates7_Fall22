@@ -13,6 +13,7 @@
 - 1/2 tsp black pepper
 - 2 cups grated parmesan cheese
 - 2 tbsp chopped parsley, for garnish
+- 1 tbsp heavy cream 
 
 ## Equipment needed:
 no special equipment required!
