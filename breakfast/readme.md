@@ -20,6 +20,7 @@
 - 2 tablespoons dried fruit, such as raisins, cranberries, chopped apples, chopped (optional)
 - Apricots (optional)
 - Maple syrup (optional)
+- Honey (optional)
 
 ## Equipment needed:
 
