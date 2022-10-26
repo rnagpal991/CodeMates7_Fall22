@@ -14,7 +14,7 @@
 2 cups grated parmesan cheese
 2 tbsp chopped parsley, for garnish
 1 tbsp red chilli flakes, for garnish
-
+1 tbsp salt
 
 ## Equipment needed:
 no special equipment required!
