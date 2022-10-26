@@ -22,6 +22,7 @@
 - Almonds (optional)
 - Maple syrup (optional)
 - Honey (optional)
+- Jam (optional)
 
 ## Equipment needed:
 
